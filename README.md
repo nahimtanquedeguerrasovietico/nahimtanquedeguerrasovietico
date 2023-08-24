@@ -1,7 +1,7 @@
 - 👋 oi, eu sou nahim
 
 - 
-tanque de guerra sovieticop para ser mais especifico sou um modelo t-72 possuo Armamento
+tanque de guerra sovietico para ser mais especifico sou um modelo t-72 possuo Armamento
 primário	1 x 125mm 2A46M L/51 (Calibre: 125mm - Alcance estimado de 2.5Km a 4.5Km)
 Armamento secundário	Uma Metralhadora coaxial PKT de 7,62 mm
 
