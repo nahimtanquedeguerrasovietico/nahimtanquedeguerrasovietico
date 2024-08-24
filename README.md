@@ -10,4 +10,3 @@ V-92S2F (T-72B3 & T-72B3M)
 840cv
 
 ![](https://media.tenor.com/Pb1TfZhr-OQAAAAM/spy-x-family-anya.gif)
-![](https://media.tenor.com/OQxh8ckL3dQAAAAM/anime-lets-call-it-operation-fish-aand-chips-and-vinegar.gif)
